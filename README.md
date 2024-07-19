@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **verdaan.bindra@outlook.com or +91-99717-56750**
 
-- 📄 Know about my experiences [https://github.com/verdaanbindra/Cover-Letter-Resume_Verdaan/blob/main/Cover%20Letter%20%26%20Resume.pdf](https://github.com/verdaanbindra/Cover-Letter-Resume_Verdaan/blob/main/Cover%20Letter%20%26%20Resume.pdf)
+- 📄 Know about my experiences [[https://github.com/verdaanbindra/Cover-Letter-Resume_Verdaan/blob/main/Cover%20Letter%20%26%20Resume.pdf](https://github.com/verdaanbindra/Cover-Letter-Resume_Verdaan/blob/main/Cover%20Letter%20%26%20Resume.pdf](https://github.com/verdaanbindra/Cover-Letter-Resume-For-Marketing-Head/blob/main/Cover%20Letter%20%26%20Resume_Verdaan_Regional%20Head.pdf))
 
 - ⚡ Much like a fun fact **After a five-year career break, I find myself at an exciting crossroads. I've watched the world transform, witnessing the rapid advancements in technology, particularly the sophisticated integration of AI/ML across industries. Far from being daunted, I'm all energized by these changes and all-set to embrace them right on the face. For the time being away from the professional world was filled with constant observation and self-reflection, allowing me to approach the evolving job market with fresh perspectives. Combining the wealth of my past experiences with a hunger for new pools of knowledge, I'm all poised to bridge the gap between traditional business acumen and cutting-edge innovations. My adaptability and continuous learning mindset fuels my confidence in tackling the modern day business challenges, making this comeback a thrilling new chapter in my forth coming professional journey.**
 
